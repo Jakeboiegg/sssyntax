@@ -30,10 +30,10 @@ I’m suuuuuper good at:
 
 ## extwa owo‑cuteness (っ˘ω˘ς )💕
 
-- i wuv chinese >/////< (✿´‿`)💮
+- ♥️ i wuv chinese >/////< (✿´‿`)💮
 
-- i’m cuwwently wwearning uwu wangwage >w< 📚✨
+- 🎓 i’m cuwwently wwearning uwu wangwage >w< 📚✨
 
-- ow úwuv ówü ûw ʕ•̀ω•́ʔ ♡
+- 😻 ow 😹 úwuv 😾 ówü 😽 ûw 🙀 ʕ•̀ω•́ʔ ♡ 🐱
 
-- meoew‑meow‑meow‑mewow‑meow‑meow‑meow :33333333 x3 o((>w< ))o 🐾💕
+- 🐈‍⬛ meoew‑meow‑meow‑mewow‑meow‑meow‑meow :33333333 x3 o((>w< ))o 🐾💕
