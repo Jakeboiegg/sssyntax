@@ -7,15 +7,25 @@
 <a href = "https://www.youtube.com/watch?v=dQw4w9WgXcQ">youtube</a>
 </html>
 
-# hello im syntax 
+# Hewwooo!! nya ✨🐾
 
-and im gownna lint ywur code bite o((>ω< ))o
+H-hewwo, I’m Syntax (ฅ^•ﻌ•^ฅ)💖
+and I’m gonna wint (lint) y‑wuwwr code‑bite! o((>ω< ))o 🎀✨
 
-im good at:
-- gremlin
-- rev & pwn main
-- i luv wireshwark
-- python3 <3
-- H1 chinese
-- sort2
-- bite o((>w< ))o
+I’m suuuuuper good at:
+
+- 🐉 Gweemwin (gremlin) ✨
+
+- 🔧 wev & pwn main (rev & pwn) 🔥
+
+- 🦈 I wuv Wiweswhawk! (wireshark) 🌊
+
+- 🐍 Pythyon 3 <3 🍰
+
+- 🇨🇳 H1 Chinese 🌸
+
+- 🔄 Sowt2 (sort2) 🌀
+
+- 🍪 code‑bite nom nom o((>w< ))o 🍪❤️
+
+- UwU!! ✧(>o<)/✧
