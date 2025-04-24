@@ -30,6 +30,13 @@ I’m suuuuuper good at:
 
 - UwU!! ✧(>o<)/✧
 
-- i luv chinese
+- i luv chinese >/////<
+
+- i'm cuwwently lwearning uwu langwage >w<
+
+- ow úwuv ówü ûw
 
 - meoewmeowmeowmewowmeowmeowmeow
+:33333333
+x3
+o((>w< ))o
