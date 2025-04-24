@@ -28,15 +28,12 @@ I’m suuuuuper good at:
 
 - 🍪 code‑bite nom nom o((>w< ))o 🍪❤️
 
-- UwU!! ✧(>o<)/✧
+## extwa owo‑cuteness (っ˘ω˘ς )💕
 
-- i luv chinese >/////<
+- i wuv chinese >/////< (✿´‿`)💮
 
-- i'm cuwwently lwearning uwu langwage >w<
+- i’m cuwwently wwearning uwu wangwage >w< 📚✨
 
-- ow úwuv ówü ûw
+- ow úwuv ówü ûw ʕ•̀ω•́ʔ ♡
 
-- meoewmeowmeowmewowmeowmeowmeow
-:33333333
-x3
-o((>w< ))o
+- meoew‑meow‑meow‑mewow‑meow‑meow‑meow :33333333 x3 o((>w< ))o 🐾💕
